@@ -6,8 +6,6 @@
 <br>
 免翻墙入口：[https://hlw04.cc](https://www.laomax.com)
 <br>
-自由、‌平等、‌公正、‌法治
-<br>
 备用入口：[https://hlw20.cc](https://www.fljia.com)
 <br>
 永久主页需翻墙：[https://heiliao.shop](https://heiliao.shop)
